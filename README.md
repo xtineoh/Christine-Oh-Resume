@@ -1,13 +1,13 @@
 # Christine Oh Resume
 
-**Amazon**, Seattle, WA / _Amazon Indie Publishing – Global Programs Product Manager_ 
+**Amazon**, Seattle, WA / _Amazon Indie Publishing – Global Programs Product Manager_  
 September 2016 – Present  
 * Manage the department’s monthly digital newsletter for over 2.5M subscribers
 * Analyzed comprehensive SEO projects for relevant EU markets and presented
 recommendations to the team which will be implemented in 2017
 * Generate $200K in sales each month by creating email campaigns and site placements
 
-**Nordstrom**, Seattle, WA / _Assistant Merchandiser_
+**Nordstrom**, Seattle, WA / _Assistant Merchandiser_  
 May 2014 – September 2016  
 * Oversaw the entire product development lifecycle of BP, a $100M Private Label brand
 * Assisted in launching a new Young Customer brand, Sun and Shadow, and maintained year-over-year sales growth by chasing into  best-selling styles and backfilling orders
